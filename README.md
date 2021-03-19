@@ -3,10 +3,8 @@ demo project
 srimani
 srimanik619@gmail.com
 IT
-# rvr&jc_it
-## rvr&jc_it
-### rvr&jc_it
-#### rvr&jc_it
-##### rvr&jc_it
-###### rvr&jc_it
-####### rvr&jc_it
+# srimani 
+# y19it45
+# srimanik619@gmail.com
+# 9347926763
+
