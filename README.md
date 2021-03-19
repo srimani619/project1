@@ -8,5 +8,5 @@ IT
 # y19it45
 # srimanik619@gmail.com
 # 9347926763
-# information techology
+# information technology
 
